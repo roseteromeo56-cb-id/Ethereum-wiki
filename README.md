@@ -1,3 +1,7 @@
+![1f469-200d-1f393](https://github.com/user-attachments/assets/aba436c9-1a54-4575-b3ba-0246804754e1)
+![1f469-200d-1f3eb](https://github.com/user-attachments/assets/9babca0c-2b53-4e54-9583-d70a939bd0d7)
+![1f477](https://github.com/user-attachments/assets/ac4a161a-3e5e-4862-8021-ea71fbb00ce9)
+![1f469-200d-1f52c](https://github.com/user-attachments/assets/a17452c3-195b-4bfb-a287-6f077812cd6a)
 # Wiki
 Romeo Rosete . Owner 
 
